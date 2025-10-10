@@ -3,15 +3,47 @@ Bipo tru, long ol ailan bilong Trobrian [Trobriand, Milen Be Provins, Kilivila P
 Orait long wanpela de wanpela lain man i bung wantaim na ol i pasim tok long wokim wanpela haus taua na bai i go antap tru long klaut.
 
 Ol i go long bus na kisim olkain diwai na rop, na ol i stat long wokim dispela taua i go antap.
+
 Ol i wok i go inap ol i kamap long wanpela hap klaut na sampela long ol i kalap i go long dispela hap klaut.
 
 Taim ol i kalap i go long dispela hap klaut nau, taua i bruk na i pundaun na ol lain man hia i stap long klaut, i pas nambaut long ol rop ol i bin wokim taua long en.
+
 Ol i wok long traim long rausim rop tasol ol i paul moa moa yet wantaim ol rop hia insait long klaut.
 
 Olsem nau sapos yumi harim klaut i pairap, em yumi save ol dispela man hia insait long klaut i traim traim long rausim rop i pas nambaut long ol lek bilong ol.
 
 Na ol arapela lain hia i bin stap na i pundaun wantaim taua i go daun long graun.
+
 Taim ol i pundaun, ol i go daun nambaut long olgeta liklik ailan klostu long ailan bilong ol.
 
 Ol dispela man i statim nupela ples bilong ol yet long ol hap hia ol i bin pundaun long en.
+
 Olsem nau i gat planti narapela kain kain tokples i stap namel long ol dispela ailan.
+
+---
+
+Long ago, in the Trobriand Islands [Milne Bay Province, Kilivila People], there was only one kind of people and they spoke only one language.  
+
+One day, the men of one clan met together and decided to build a tower so tall that it would reach the clouds.  
+
+They went to the forest and collected many kinds of trees and vines, then began to build this tower.  
+
+They worked and worked until they came up to a cloud and then some of them climbed upon this cloud.  
+
+When they climbed upon this cloud, the tower broke and fell down.  
+
+The men were stuck on the cloud; they were tied together with the vines that they had used to build the tower.  
+
+They tried to remove the vines but when they did this they twisted about.  
+
+So now if you or I hear thunder, we are hearing these men inside the cloud trying to get rid of the vines entangled around their legs.  
+
+The other clans of the island fell down with the tower to the ground.  
+
+When they fell, they came down on all of the other small islands near their original island.  
+
+These men started new villages at all of the places that they landed.  
+
+So now there are many other kinds of languages near this island.  
+
+Gibson Henry  
