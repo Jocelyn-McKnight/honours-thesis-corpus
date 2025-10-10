@@ -1,3 +1,6 @@
+# Where Did Women Come From? 
+## (Wantok 50, August 16, 1972) 
+
 Dispela stori i tok, pastaim tru i no gat meri i stap long dispela graun.    
 
 Ol i stap long klaut na ol man tasol i stap long graun na mekim olkain wok bilong ol gaden na haus
@@ -34,10 +37,6 @@ Orait nau ol dispela meri i stap na helpim ol man long mekim ol wok bilong haus 
 
 ---
 
-Where Did Women Come From  
-
-(Wantok 50, August 16, 1972, page 11)  
-
 Once there were no women in this land.  
 
 They lived in the clouds and only men lived on the earth.  
@@ -58,7 +57,7 @@ They said, “Who cooked this food?”
 
 This happened many times.  
 
-One day, they hid one of the smaller men so that he could find out who was responsible for cooking their food all of the time.  
+One day, they hid one of the smaller men so that that he could find out who was responsible for cooking their food all of the time.  
 
 The little man hid and saw the women come down a rattan rope, gather up food, and cook it.  
 
@@ -76,4 +75,4 @@ Right away each man grabbed a woman, went back to their houses and married her.
 
 So now, these women help the men with housework and by cooking food for their husbands.  
 
-[Anonymous]  
+### [Anonymous]  
