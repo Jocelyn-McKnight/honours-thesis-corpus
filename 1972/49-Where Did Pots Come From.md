@@ -1,3 +1,6 @@
+# Where Did Pots Come From? 
+## (Wantok 49, August 2, 1972) 
+
 Bipo tru long olgeta hap long dispela graun i no gat man i save kukim kaikai long sospen, long wanem i no gat man i save long wokim sospen.
 
 Long dispela taim tu long wanpela hap bilong Madang [Provins], i gat wanpela yangpela man i bin stap.
@@ -61,6 +64,7 @@ Olsem nau Fonpain i kisim sampela graun na soim pasin bilong wokim sospen bilong
 Planti manmeri kukim kaikai long sospen na i swit moa olsem planti meri moa i lainim wok bilong sospen.
 
 ---
+
 Long ago, there was no place where people cooked with pots.  
 
 This was because no one knew how to make a pot.  
@@ -129,4 +133,4 @@ Now many people cook their food using pots, and the food is quite tasty.
 
 Many more people now know how to make pots.  
 
-[Anonymous]  
+### [Anonymous]  
