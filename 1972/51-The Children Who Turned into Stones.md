@@ -1,3 +1,6 @@
+# The Children Who Turned into Stones 
+## (Wantok 51, September 6, 1972) 
+
 Long bikbus tru wanpela diwai i gat ol prut long en, na bikpela maleo tru i save kaikai ol dispela prut.
 
 Long apinun maleo hia i kamaut long ples hait bilong em na painim samting bilong kaikai.
@@ -82,10 +85,6 @@ Oltaim ol i lukim mun i wokabaut insait long klaut, ol i save tingim gen bikpela
 
 ---
 
-The Children Who Turned into Stones  
-
-(Wantok 51, September 6, 1972, pages 4, 6)  
-
 Deep in the forest, there was a fruiting tree, and a huge eel that often ate this fruit.  
 
 In the evening, the eel would come out of its hiding place to find something to eat.  
@@ -114,7 +113,7 @@ They turned over many stones so that they could finally turn over the biggest bo
 
 They all stood around this boulder and some of the men lifted it up.  
 
-When the eel ran out, all of the men, women and children called out and threw spears and arrows at the eel’s body, killing it.  
+When the eel ran out, all of the men, women and children called out and threw spears and arrows at eel’s body, killing it.  
 
 All of the men, women and children shouted with joy.  
 
@@ -162,6 +161,6 @@ The men and women of the village were very troubled by this, and they returned t
 
 Whenever they see the moon amidst the clouds, they always remember the huge eel and the old women and children who became stones.  
 
-Guksaluk Atolik  
+### Guksaluk Atolik  
 
-[Madang Town, Madang Province]
+### Madang Town, Madang Province
