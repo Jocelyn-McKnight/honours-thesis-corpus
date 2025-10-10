@@ -1,25 +1,25 @@
 # Index by Location
 
 ## Madang Province
-- [Wantok 49 – *Where Did Pots Come From*](#where-did-pots-come-from)
-- [Wantok 51 – *The Children Who Turned into Stones*](#the-children-who-turned-into-stones)
+- [49 – Where Did Pots Come From](49-Where%20Did%20Pots%20Come%20From.md)
+- [51 – The Children Who Turned into Stones](51-The%20Children%20Who%20Turned%20into%20Stones.md)
 
 ## Western Highlands Province
-- [Wantok 54 – *Praying to the Sun*](#praying-to-the-sun)
+- [54 – Praying to the Sun](54-Praying%20to%20the%20Sun.md)
 
 ## Milne Bay Province
-- [Wantok 55 – *Where Did Languages Originate*](#where-did-languages-originate)
+- [55 – Where Did Languages Originate](55-Where%20Did%20Languages%20Originate.md)
 
 # Index by Author
 
 ## Guksaluk Atolik
-- [Wantok 51 – *The Children Who Turned into Stones*](#the-children-who-turned-into-stones)
+- [51 – The Children Who Turned into Stones](51-The%20Children%20Who%20Turned%20into%20Stones.md)
 
 ## Stephen Gai
-- [Wantok 52 – *How the Snake Lost Its Hair*](#how-the-snake-lost-its-hair)
+- [52 – How the Snake Lost Its Hair](52-How%20the%20Snake%20Lost%20Its%20Hair.md)
 
 ## Anis Koma
-- [Wantok 54 – *Praying to the Sun*](#praying-to-the-sun)
+- [54 – Praying to the Sun](54-Praying%20to%20the%20Sun.md)
 
 ## Gibson Henry
-- [Wantok 55 – *Where Did Languages Originate*](#where-did-languages-originate)
+- [55 – Where Did Languages Originate](55-Where%20Did%20Languages%20Originate.md)
