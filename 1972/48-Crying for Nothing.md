@@ -1,5 +1,5 @@
 # Crying for Nothing 
-## (Wantok 48, July 19, 1972, page 4) 
+## (Wantok 48, July 19, 1972) 
 
 Bipo tru i gat wanpela man nogut i stap.
 
