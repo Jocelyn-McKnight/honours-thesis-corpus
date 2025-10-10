@@ -51,3 +51,62 @@ Taim dispela lapun man ya i kam bek, em i kros nogut tru long ol i kam kisim war
 Tasol ol i tokim em olsem dispela wara i bilong ol, olgeta wantaim.
 
 Na nau long dispela taim dispela hul wara i stap yet nau long Malung Viles long Ali Ailan.
+
+---
+
+Ali is the name of an island, on this island there is a small village named Malung [Ali People, West Sepik Province].  
+
+This village once did not have a permanent water supply for cooking food.  
+
+The ancestors were only able to get water from rain.  
+
+When it did not rain, they had no water.  
+
+One time, there was an old man from Malung Village who went walking along the beach.  
+
+He saw a black bird.  
+
+It was a raven.  
+
+The man went down to a place and hid while looking at this raven.  
+
+This raven was making a small well.  
+
+When the man saw this he walked closer to the well.  
+
+Then the raven saw the old man and flew to the top of a tall tree called *tau*.  
+
+From the top of the tree, the raven looked at the man walking straight to the well.  
+
+The old man saw that there was still a stone in this well, which he tried to remove.  
+
+The man removed the stone and when he saw the water inside it, he was ecstatic.  
+
+When the old man returned home, he did not tell the other people about this well.  
+
+Each time he went to his garden or to any other place, he shut his house tightly.  
+
+He did not like other people going inside his house.  
+
+So one time, some of the old men and women saw him shutting up his house to leave.  
+
+He was going to get some water from the well again.  
+
+One of the old men went to hide and saw him going straight to this well.  
+
+After he finished getting water from the well, he hid the well with tree leaves.  
+
+The old man who was hiding saw this and returned home where he told the other old people of the village.  
+
+So after they were told about the well, they all went to see it and they drank from it.  
+
+The water was sweeter than the rainwater that they had been drinking.  
+
+When the old man returned, he was incensed at them because they had taken his water.  
+
+But they told him that the water belonged to everyone.  
+
+This well still exists in Malung Village on Ali Island.  
+
+**Author:** Mr. B. A. Mongalil  
+**Location:** Ali Island, Aitape, West Sepik Province  
