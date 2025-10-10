@@ -1,5 +1,5 @@
-#Crying for Nothing 
-##(Wantok 48, July 19, 1972, page 4) 
+# Crying for Nothing 
+## (Wantok 48, July 19, 1972, page 4) 
 
 Bipo tru i gat wanpela man nogut i stap.
 
@@ -44,4 +44,4 @@ She told each of them to cry for her husband, Nothing.
 
 So if you see a boy crying and you ask him, “Why are you crying?” The boy will tell you, “I’m crying for nothing."
 
-###[Anonymous] 
+### [Anonymous] 
