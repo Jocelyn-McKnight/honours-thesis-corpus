@@ -135,3 +135,48 @@ Olsem tasol kokonas i kamap long yumi man.
 Taim yu rausim skin bilong kokonas long naip, yu inap painim pes bilong man.
 
 Ol tumbuna ol i stori olsem.
+
+---
+
+Long ago, in a village called Bukai in New Ireland Province, there lived a married couple.  
+
+They had one daughter who was very beautiful.  
+
+Many young men wanted to marry her, but her father always refused.  
+
+The young woman was not allowed to marry anyone.  
+
+One day, her mother and father went to the garden and left her alone.  
+
+While she was alone, a shark came out of the sea and spoke to her.  
+
+The shark said, “I want to marry you.”  
+
+The girl was frightened but she agreed because she did not want to make the shark angry.  
+
+The shark told her that he would come back the next day and take her away.  
+
+When the shark returned the next morning, the girl followed him into the sea.  
+
+The girl’s parents returned home and could not find her anywhere.  
+
+They searched the garden and the beach but did not see her.  
+
+They were very sad.  
+
+One day, the mother went down to the beach and saw her daughter’s head floating in the water.  
+
+She cried and called to her husband.  
+
+The father came and took the head and buried it near the beach.  
+
+A few weeks later, a tree grew from the place where the girl’s head had been buried.  
+
+This was the first coconut tree.  
+
+Now when we drink coconut water, we say that it is the tears of the girl.  
+
+When we look at the marks on the coconut shell, we can see her eyes and mouth.  
+
+**Author:** Roselin Nebita  
+**Location:** Bukai Village, New Ireland Province  
